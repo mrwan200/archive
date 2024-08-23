@@ -2,7 +2,7 @@
 It's time to gone this my profile. Thank you for following me and interested any project in 5 years. 
 
 ## What happened in your life
-I got some many problem about me, company, relation and problem my depressed yeah... I never thought I would have to come back to this kind of situation. 🥲
+I got some many problem about me, company, relation and problem my depressed. Yeah... I never thought I would have to come back to this kind of situation. 🥲
 
 I so very enjoyed coding, but after I joined team and company. I got so many pressure, bad relationship, and more with over past in 2-3 years
 
